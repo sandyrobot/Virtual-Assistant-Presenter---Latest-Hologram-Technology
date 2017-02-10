@@ -1,0 +1,2 @@
+# Virtual-Assistant-Presenter---Latest-Hologram-Technology
+I-presenter is the largest and greatest software is being used in visual communication. It creates an unforgettable experience for your customers when the matter comes into marriage, birthday celebrations. It becomes an immersive, engaging and intelligent presenter, celebrity and even if product. It never complains if anything goes wrong by us. She performs work as if it’s her duty to perform each and every thing. 
